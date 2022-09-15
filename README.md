@@ -1,0 +1,3 @@
+- 👋 Ear, sou o Duke (ou IDUK3I);
+- 👀 Gamer e editor AMV;
+- 🌱 Vivendo em busco de algo.
